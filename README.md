@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @KaushalBhajane
 - 👀 I’m interested Website development and Competitive coding
 - 🌱 Passionate Web developer with a love for continuous learning and embracing new challenges in tech.
-- 📫 Reach me - email : bhajanekp@rknec.edu
+- 📫 Reach me - email : kaushalpvt1@gmail.com
 - 😄 Pronouns: He
 
 
